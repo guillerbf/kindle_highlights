@@ -1,0 +1,4 @@
+# Por qué fracasan los países
+- Los primeros españoles y, como veremos, también los colonos ingleses, no estaban interesados en cultivar la tierra ellos mismos, querían que lo hicieran otros por ellos y saquear sus riquezas, oro y plata.
+- La estrategia de colonización española fue muy efectiva. La inició Hernán Cortés en México, basándose en la observación de que la mejor forma de dominar al adversario era capturar al líder indígena. Esta estrategia le permitió reclamar la riqueza acumulada de los líderes y coaccionar a los pueblos indígenas para que le entregaran tributos y comida. El paso siguiente consistía en establecerse como la nueva élite de la sociedad indígena y hacerse con el control de los impuestos y tributos ya existentes y, sobre todo, de los trabajos forzados.
+- después de 9600 a. C., las temperaturas globales volvieron a aumentar siete grados Celsius en menos de una década y, desde entonces, permanecen elevadas.

@@ -1,0 +1,11 @@
+# Educación financiera avanzada partiendo de cero
+- (Added on l martes, 31 de julio de 2018 16:38:08) las acciones son más rentables que los fondos de inversión. Deciden vender sus fondos de inversión y comprar con ese dinero una cartera diversificada de acciones sólidas. Haciendo
+- (Added on l martes, 31 de julio de 2018 16:38:19) las acciones son más rentables que los fondos de inversión. Deciden vender sus fondos de inversión y comprar con ese dinero una cartera diversificada de acciones sólidas. Haciendo
+- (Added on l martes, 31 de julio de 2018 16:38:44) Y en realidad no han aumentado nada su riesgo actual, porque el riesgo de los fondos de inversión es más o menos el mismo que el de las acciones como han visto al mirar datos históricos.
+- (Added on l martes, 31 de julio de 2018 17:48:30) Bienes Inmuebles) de su vivienda. También
+- (Added on l martes, 31 de julio de 2018 17:48:34) se rumorea que los nuevos pensionistas verán rebajadas sus pensiones nuevamente porque el sistema
+- (Added on l jueves, 2 de agosto de 2018 15:44:57) Las cuentas remuneradas son una mala inversión a largo plazo, pero a corto plazo son un sitio muy bueno para que la liquidez esté produciendo un pequeño interés sin correr riesgos
+- (Added on l martes, 7 de agosto de 2018 10:16:35) Cuando los tipos de interés estén bastante por debajo de la media lo recomendable es poner el dinero en productos como Letras del Tesoro, depósitos a corto plazo, cuentas remuneradas, etc. Si
+- (Added on l martes, 7 de agosto de 2018 10:17:10) Sin embargo cuando los tipos de interés estén por encima de la media puede ser interesante adquirir títulos de renta fija con plazos largos para asegurarse esos tipos altos durante más tiempo antes de que empiecen a bajar.
+- (Added on l martes, 7 de agosto de 2018 15:39:54) La inflación es la realidad de lo que ha sucedido y los IPC son formas de intentar medir y reflejar, con mejor o peor fortuna, esa realidad.
+- (Added on l miércoles, 8 de agosto de 2018 17:45:36) El interés compuesto tiene un poder inmenso y es un gran aliado del inversor paciente. Lo que sucede es que el interés compuesto funciona con cualquier tipo de inversión, sin ninguna excepción. La inmensa mayoría de la gente sólo mantiene durante plazos largos las inversiones en inmuebles
